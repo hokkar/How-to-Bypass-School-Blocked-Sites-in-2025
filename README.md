@@ -33,7 +33,7 @@ A VPN encrypts your internet traffic and routes it through a secure server outsi
 > - Easy-to-use apps for Windows, Mac, iOS, Android, and browser extensions  
 > - Affordable student-friendly pricing  
 
-Whether you're accessing research papers, watching tutorials, or collaborating on projects, [PureVPN](https://vpnleaktester.com/get/purevpn) helps you stay connected without restrictions.
+Whether you're accessing research papers, watching tutorials, or collaborating on projects, [ExpressVPN -  Get 100% Cash Back](https://www.topcashback.com/ref/Member442235519854/expressvpn) helps you stay connected without restrictions.
 
 ### 2. Switch DNS Servers
 
